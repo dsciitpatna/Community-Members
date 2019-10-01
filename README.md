@@ -1,5 +1,5 @@
 ### List of name and taglines of DSC-IIT Patna Members 
 
 Vatsal Singhal ( naam nhi suna hog
-vardhan
+srivardhan
 ayush ranjan <,naam to suna hi hoga
