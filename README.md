@@ -1,4 +1,6 @@
 ### List of name and taglines of DSC-IIT Patna Members 
 
-Vatsal Singhal ( naam nhi suna hoga :-( )
+Vatsal singhal naam nhi suna hoga :-()
+
+Rahul naam toh suna hi hoga
 
